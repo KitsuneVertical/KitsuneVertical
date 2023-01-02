@@ -1,0 +1,3 @@
+- Hello everyone, I am @KitsuneVertical
+- I’m interested in Gaming, Streaming, Music and Voice Acting
+- How to reach me ... - Send E-Mail to KitsuneVertical@gmail.com
